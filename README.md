@@ -6,7 +6,7 @@
          IM SO FRIENDLY so don’t worry to int me! , Not good at English! sorry about thatt 
            im from Thailand soo sometimes I’ll act weird HELL
 
-           you can cuddle me ever we don’t know else BUT IM OKAY WITH THAT PLEASE COBBLE ME
+           you can cuddle me ever we don’t know else BUT IM OKAY WITH THAT PLEASE CUDDLE ME
 
-    If you follow my git feel feel to sit with me!!
+    If you follow my git feel free to sit with me!!
     
